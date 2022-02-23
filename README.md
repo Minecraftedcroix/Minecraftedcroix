@@ -1,0 +1,5 @@
+-Hi, I’m `@Minecraftedcroix`
+- I’m interested in `Minecraft Plugins/Mods`
+- I’m currently learning how to `win`
+- 💞️ I’m looking to collaborate with `nobody`
+- 📫 How to reach me: https://discord.gg/FdYxUWFXXq
