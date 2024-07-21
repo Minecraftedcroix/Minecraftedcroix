@@ -1,5 +1,5 @@
--Hi, I’m `@Minecraftedcroix`
-- I’m interested in `Minecraft Plugins/Mods`
+-Hi, I’m `@Craftedcroix`
+- I’m interested in `Jperm`
 - I’m currently learning how to `win`
-- 💞️ I’m looking to collaborate with `nobody`
-- 📫 How to reach me: https://discord.gg/FdYxUWFXXq
+- 💞️ I’m looking to collaborate with `nobody/your mom`
+- 📫 How to reach me: https://dsc.gg/craftedcroix
